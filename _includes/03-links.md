@@ -1,1 +1,1 @@
-[Instagram] (https://www.instagram.com/lighter_moon_/) 
+[Instagram](https://www.instagram.com/lighter_moon_/) 
